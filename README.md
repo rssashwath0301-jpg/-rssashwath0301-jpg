@@ -32,9 +32,8 @@
 
 ## Connect With Me
 
-- LinkedIn: https://www.linkedin.com/in/r-s-sashwath-0b6a76437)
-- GitHub: [https://github.com/YOUR-USERNAME
-](https://github.com/rssashwath0301-jpg)
+- LinkedIn: https://www.linkedin.com/in/r-s-sashwath-0b6a76437
+- GitHub: https://github.com/rssashwath0301-jpg
 ---
 
 ⭐ Thanks for visiting my profile!
